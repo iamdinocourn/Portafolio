@@ -24,7 +24,8 @@
   -  Batatabit / Celular
   -  Batatabit / Tablet
   -  Batatabit / Computadora
-
+- Conclusión
+- Objetivos Futuros
 
 ## Objetivos
  𝕆𝕓𝕛𝕖𝕥𝕚𝕧𝕠𝕤 ✍(◔◡◔)
